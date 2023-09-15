@@ -1,16 +1,16 @@
-### Hi there 👋
+### Olá, boa tarde, bom dia, boa noite, sejam bem vindos 👉👈
 
-<!--
-**ericklohanmariano/ericklohanmariano** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Me chamo Erick Lohan Naresi Mariano, sou um aluno da rede estadual do Paraná, criei meu perfil aqui para me desenvolver na programação de Java script.
 
-Here are some ideas to get you started:
+🏋‍♂️- Gosto bastante de academia.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+📚- Sou estudante geral.
+
+🪐- Gosto de astronomia.
+
+📱🖥💻- Gosto muito do mundo da tecnologia.
+
+👰🤵- Sou casado. 👍🏻
+
+
+
