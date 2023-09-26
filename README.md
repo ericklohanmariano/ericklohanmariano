@@ -14,7 +14,7 @@ Me chamo Erick Lohan Naresi Mariano, sou um aluno da rede estadual do Paraná, c
 
 Contato: 📫 erick.naresi.mariano@escola.pr.gov.br
 
-![](https://media.tenor.com/miJ8lZK5fS0AAAAC/the-spectacular-spider-man-spectacular-spider-man.gif)
+![](https://media.tenor.com/PnjZwIFVGocAAAAC/the-spectacular-spider-man-spectacular-spider-man.gif)
 
 
 
