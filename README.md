@@ -10,7 +10,7 @@ Me chamo Erick Lohan Naresi Mariano, sou um aluno da rede estadual do Paraná, c
 
 📱🖥💻 - Gosto muito do mundo da tecnologia.
 
-👰🤵 - Sou casado. 👍🏻
+👰🤵 -  Tenho dona.
 
 Contato: 📫 erick.naresi.mariano@escola.pr.gov.br
 
